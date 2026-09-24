@@ -25,6 +25,6 @@ I've got some pinned projects but my favourite is [Night Vision Monoculars](http
 
 ### 📬 Connect With Me
 
-* 💼 **LinkedIn:** [Anis BenJbara](https://www.linkedin.com/in/anis-ben-jbara-5473742b5/)
+* 💼 **LinkedIn:** [Anis BenJbara](https://www.linkedin.com/in/ben-jbara-anis/)
 * 📧 **Email:** anisbenjbarap@gmail.com
  (Open to relocation abroad)
